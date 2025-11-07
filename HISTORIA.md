@@ -1,1 +1,2 @@
-Érase una vez, un perro salchicha gordo bachicha quien, durante un soleado día de paseo, encontró...
+Érase una vez, un perro salchicha gordo bachicha quien, durante un soleado día de paseo, encontró... un hueso de bacon que le encanto.
+
